@@ -1,0 +1,1 @@
+Isaac Newton (1642–1727) est un mathématicien, physicien, astronome et philosophe britannique, largement considéré comme l'un des plus grands scientifiques de l'histoire. Il est le fondateur de la mécanique classique et le théoricien de la gravitation universelle.
